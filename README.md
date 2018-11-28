@@ -1,2 +1,2 @@
 # KevinLeProjet
-Jevin est un projet génial, masi un peu jeune mais sympathique
+Kevin est un projet génial,  un peu jeune mais sympathique
